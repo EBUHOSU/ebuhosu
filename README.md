@@ -5,4 +5,3 @@
 <p align="center">
   not a fictkin and also i dont talk in characters! feel free to invite me to go on PCO anytime. also i do arts, have a moment to check out my PINTEREST! link below the bio.
   
-![stalkers](https://profile-counter.glitch.me/gratuitousselfabsorbed/count.svg)
