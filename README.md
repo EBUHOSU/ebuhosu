@@ -10,7 +10,7 @@ b31ng in the shoes of a fictional character is not something the user might be i
 
 few guidelines are available regarding the personality of this user.  due to the fact that it will depend on your perception of this user, she encourages you to come talk to her and find it out yourself. we can assure you that she is very positive. though we can't guarantee that it is always, but trust us, even her jokes are never completely negative. in addition to the positive and negative aspects, there is also a warning as well: never vent your anger or negative feelings on the user, since there is a significant possibility that her silliness will make your issues worse. the user does not respond to negative problems.
 
-additionally, the user creates art!  she still draw even though she doesn't particularly enjoy drawing.  give the gallery a quick glance by clicking on the highlighted link beneath her bio!  in case you were unaware, she enjoys reading comments. it would be absolutely wonderful if you whispered her a "3?2!" to surprise her that you did spend your time to read all this bullshit, because she wouldn't expect that anyone would!
+additionally, the user creates art!  she still draw even though she doesn't particularly enjoy drawing.  give the gallery a quick glance by clicking on the highlighted link beneath her bio!  in case you were unaware, she enjoys reading comments. it would be absolutely wonderful if you whispered her a "3?1!" to surprise her that you did spend your time to read all this bullshit, because she wouldn't expect that anyone would!
 
 > extra: blocking are for losers, we sit on them like men.
 
