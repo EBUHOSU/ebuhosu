@@ -42,3 +42,10 @@ question: what does 3?1! mean?
  ────୨ 𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙢𝙖𝙞𝙣 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨! ৎ────
 </p>
 
+<img src="https://files.catbox.moe/73vk8e.png" align="center">
+
+<p align="right">
+davejade drawing my me!!!
+</p> 
+
+
