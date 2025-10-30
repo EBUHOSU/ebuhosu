@@ -2,7 +2,7 @@
 
 this might be considered a comprehensive wiki about this user. the decision rests on whether you have the patience to read it and have a better understanding of the user.
 
-this user goes by the name Nezera "Kirkland" Sketch. it's likely that you can call her Neze or Kirk or any of the silly nicknames you may come up with. she will be anticipating the moment when you will give her a ridiculous nickname that will make her giggle uncontrollably on the ground. therefore, the user was born as a girl by birth, she would not be a man or a 'they' who are 31ther still in a perplexing stage of life or have they decided.
+this user goes by the name Jave "Kirkland" Sketch. it's likely that you can call her Jave or Kirk or any of the silly nicknames you may come up with. she will be anticipating the moment when you will give her a ridiculous nickname that will make her giggle uncontrollably on the ground. therefore, the user was born as a girl by birth, she would not be a man or a 'they' who are 31ther still in a perplexing stage of life or have they decided.
 
 despite the fact that the user is officially turning seventeen, she will always be young and rad. although she will always be the one to interact you initially, there are no strict rules when it comes to interacting with users. you can still get the guts to do so regardless of who you are or what you do.
 
