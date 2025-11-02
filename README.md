@@ -41,5 +41,12 @@ question: what does 3?1! mean?
 <p align="center">
  ────୨ 𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙢𝙖𝙞𝙣 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨! ৎ────
 
+ <p align="center">
+  <img src="https://files.catbox.moe/tx63qb.png" width="600"/>
+</p>
+
+cool fanart of Jave that i ʚ♡nicely♡ɞ asked my precious one of my friends to draw it ^w^
+
+
 
 
