@@ -4,9 +4,5 @@
 </h4>
 <h5 align="center">
   
-man im kind of done with this bs
-
-<p align="center">
- <img src="https://komarev.com/ghpvc/?username=ebuhosu&color=red&style=plastic&label=🐶"
-</p>
+miyavi or jade, she/it (strictly no he/they)
 
