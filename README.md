@@ -1,8 +1,8 @@
 <h4 align="center">
-<img src=https://files.catbox.moe/5nl0pk.jpg height="200">
+<img src=https://files.catbox.moe/7jxg74.jpg height="200">
 <br>
 </h4>
 <h5 align="center">
   
-miyavi or jade, she/it (strictly no he/they)
+malce or jade, she/it (strictly no he/they)
 
