@@ -10,10 +10,15 @@ malce or jade, she/it (strictly no he/they)
 <h5 align="center">
   
 if you judges people 
+
 based on their visible 
+
 interests or make fun 
+
 of them just to make 
+
 yourself feel better, 
+
 then don't be my friend.
 
 
