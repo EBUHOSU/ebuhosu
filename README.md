@@ -1,1 +1,15 @@
+<img src="https://files.catbox.moe/111p0x.gif" alt="Description" class="center-img">
 
+***
+
+beng or leo (beng mostly) . esfj seventeen . he/any
+
+quantity over quality where i preferred
+
+DO NOT iwc because i dont like awkwardness, just entertain me your true sig-enigma form so i would know if we hit or nay
+
+***
+
+![](https://64.media.tumblr.com/05543b5203005c2fc65da29c3c004029/437e6272509774a5-fd/s100x200/7e06ba35d67c60e75907cf1b9b4faf07252f3268.gifv)![](https://64.media.tumblr.com/41810aa8359c1845e41581a1fd0a2b2f/673c6e27b59a2a19-e3/s100x200/6b38ef96029016e5f3f10c46bb0689091cdf00cd.pnj)![](https://64.media.tumblr.com/594e7c44633bc2bca28998dbe4fed0d9/495a2c3a5ad4d528-7d/s250x400/fd3bdeb0816f75416e74a993fc23f88d9609a101.gifv)![](https://64.media.tumblr.com/ca70314524d132639820f5544a4b9cf4/07ffab718642b4bf-00/s250x400/fab89351de6928ca6f74bc4d9872fce4e551ad2c.gifv)![](https://64.media.tumblr.com/f3f1fe2cfdbd8b1f7285e650fd320423/c11beae9e65268c8-9a/s100x200/fc3e5d79691acbf443a5422d40a3fe0feaa7685f.pnj)![](https://64.media.tumblr.com/e5407703de01848f421d2d9a3694f8ca/851a1ef7d7001340-55/s100x200/e19bf5bdb6ddd4c45e45a3ed80536723ebbf877b.pnj)
+
+mains *!* ( and faves )
