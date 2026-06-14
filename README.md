@@ -4,7 +4,7 @@
 </h4>
 <h5 align="center">
 
-beng or leo (beng mostly) . esfj seventeen . he/any
+beng or nate (beng mostly) . esfj seventeen . he/any
 
 quantity over quality where i preferred
 
