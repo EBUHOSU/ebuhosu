@@ -1,22 +1,15 @@
 <h4 align="center">
-<img src=https://64.media.tumblr.com/334a308a901e24808abc4cc51cce90e6/2c233c0d3ddf0421-86/s75x75_c1/f6d70beffefc5c929c4a658062393b82ddc09c3a.gifv height="300">
+<img src=https://files.catbox.moe/e0hylk.jpg height="200">
 <br>
 </h4>
 <h5 align="center">
 
-beng or nate (beng mostly) . esfj seventeen . he/any
-
-quantity over quality where i preferred
-
-DO NOT iwc because i dont like awkwardness, just entertain me your true sig-enigma form so i would know if we hit or nay
+𝑀𝓎 𝒹𝑒𝒶𝓇 𝒸𝑜𝓂𝓅𝒶𝓃𝒾𝑜𝓃𝓈, 𝐼 𝓂𝓊𝓈𝓉 𝒷𝑒𝓈𝑒𝑒𝒸𝒽 𝓎𝑜𝓊 𝓉𝑜 𝓁𝑒𝓃𝒹 𝓂𝑒 𝓎𝑜𝓊𝓇 𝓂𝑜𝓈𝓉 𝑔𝓇𝒶𝒸𝒾𝑜𝓊𝓈 𝒶𝓉𝓉𝑒𝓃𝓉𝒾𝑜𝓃, 𝒻𝑜𝓇 𝐼 𝒽𝒶𝓋𝑒 𝒶 𝓇𝑒𝓋𝑒𝓁𝒶𝓉𝒾𝑜𝓃 𝑜𝒻 𝓉𝒽𝑒 𝓂𝑜𝓈𝓉 𝑒𝓍𝓉𝓇𝒶𝑜𝓇𝒹𝒾𝓃𝒶𝓇𝓎 𝓃𝒶𝓉𝓊𝓇𝑒 𝓉𝑜 𝒾𝓂𝓅𝒶𝓇𝓉. 𝐼 𝒹𝑜 𝒷𝑒𝓁𝒾𝑒𝓋𝑒 𝒾𝓉 𝒾𝓈 𝓎𝑜𝓊—𝓎𝑒𝓈, 𝓎𝑜𝓊, 𝓂𝓎 𝓂𝑜𝓈𝓉 𝒸𝒽𝑒𝓇𝒾𝓈𝒽𝑒𝒹 𝒶𝓈𝓈𝑜𝒸𝒾𝒶𝓉𝑒𝓈—𝓌𝒽𝑜𝓂 𝐼 𝒶𝒹𝒹𝓇𝑒𝓈𝓈 𝓌𝒾𝓉𝒽 𝓉𝒽𝑒 𝓊𝓉𝓂𝑜𝓈𝓉 𝒶𝒻𝒻𝑒𝒸𝓉𝒾𝑜𝓃. 𝐼 𝒽𝒶𝓋𝑒 𝒸𝑜𝓃𝒸𝑒𝒾𝓋𝑒𝒹 𝒶 𝓅𝓁𝒶𝓃 𝑜𝒻 𝓃𝑜 𝓈𝓂𝒶𝓁𝓁 𝒶𝓂𝒷𝒾𝓉𝒾𝑜𝓃: 𝓉𝑜 𝑒𝓂𝒷𝒶𝓇𝓀 𝓊𝓅𝑜𝓃 𝒶 𝒸𝑒𝓁𝑒𝓈𝓉𝒾𝒶𝓁 𝓋𝑜𝓎𝒶𝑔𝑒, 𝒶 𝓈𝒶𝒾𝓁 𝒶𝓂𝑜𝓃𝑔 𝓉𝒽𝑒 𝓈𝓉𝒶𝓇𝓈, 𝒾𝒻 𝓎𝑜𝓊 𝓌𝒾𝓁𝓁. 𝒪𝓃𝑒 𝒹𝒶𝓎, 𝐼 𝒹𝒶𝓇𝑒 𝓈𝒶𝓎, 𝐼 𝓈𝒽𝒶𝓁𝓁 𝒸𝓁𝒶𝓈𝓅 𝓉𝒽𝑒 𝓋𝑒𝓇𝓎 𝑜𝓇𝒷 𝑜𝒻 𝒥𝓊𝓅𝒾𝓉𝑒𝓇 𝒾𝓃 𝒶 𝓂𝑜𝓈𝓉 𝒾𝓃𝓉𝒾𝓂𝒶𝓉𝑒 𝑒𝓂𝒷𝓇𝒶𝒸𝑒. 𝐼 𝒹𝑜 𝑒𝓃𝓉𝓇𝑒𝒶𝓉 𝓎𝑜𝓊 𝓉𝑜 𝑒𝓍𝓉𝑒𝓃𝒹 𝓎𝑜𝓊𝓇 𝓀𝒾𝓃𝒹𝑒𝓈𝓉 𝓌𝒾𝓈𝒽𝑒𝓈 𝓉𝒽𝒶𝓉 𝓂𝓎 𝓋𝑒𝓈𝓈𝑒𝓁 𝒹𝑜𝑒𝓈 𝓃𝑜𝓉, 𝒾𝓃 𝒶 𝓂𝑜𝓂𝑒𝓃𝓉 𝑜𝒻 𝒻𝓇𝒾𝑔𝒽𝓉𝒻𝓊𝓁 𝓂𝒾𝓈𝒻𝑜𝓇𝓉𝓊𝓃𝑒, 𝒸𝑜𝓁𝓁𝒾𝒹𝑒 𝓌𝒾𝓉𝒽 𝓉𝒽𝑒 𝒹𝒾𝓈𝓉𝒶𝓃𝓉 𝒫𝓁𝓊𝓉𝑜. 𝐻𝑜𝓌 𝓈𝒾𝓃𝑔𝓊𝓁𝒶𝓇𝓁𝓎 𝓈𝓅𝓁𝑒𝓃𝒹𝒾𝒹 𝓈𝓊𝒸𝒽 𝒶𝓃 𝑒𝓃𝒹𝑒𝒶𝓋𝑜𝓊𝓇 𝓈𝒽𝒶𝓁𝓁 𝒷𝑒!
 
 
 
 ***
 
 
-bum
+'𝔗𝔦𝔩 𝔱𝔥𝔢𝔫. 𝔉𝔞𝔯𝔢 𝔱𝔥𝔢𝔢 𝔴𝔢𝔩𝔩.
 
-bummers
-
-guns
