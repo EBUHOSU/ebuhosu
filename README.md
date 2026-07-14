@@ -1,5 +1,5 @@
 <h4 align="center">
-shits i know in case you dont know what to talk about! (try squint!)
+things i know in case you dont know what to talk about! (try squint!)
   
   i dont hate anything so please dont be my friend if you are a judgy one!
   <br>
