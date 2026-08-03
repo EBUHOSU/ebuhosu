@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  promptisㅤ ㅤ+ㅤ ㅤnarusasu  ㅤ  `ㅤ · ㅤ  .  ㅤ  ó ⩊ ò ㅤ sheㅤ  / ㅤ her 
+  promptisㅤ ㅤ+ㅤ ㅤnarusasu  ㅤ  `ㅤ · ㅤ  .  ㅤ  ó ⩊ ò ㅤ  
 
 <p align="center">
   <img src="https://i.postimg.cc/Hxy2Thh6/tumblr-250e5d34e5767816ae67fd360347105a-4ce38864-1280.gif">
