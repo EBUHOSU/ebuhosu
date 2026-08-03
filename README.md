@@ -1,13 +1,13 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/e6bd432cba39d06a54bca3b0441dd5a5/3e50603728b5b05a-b2/s100x200/890b48471bac4bfb5d151bf0e8c8663236f60708.gifv">
+  <img src="https://i.postimg.cc/6qtGLZYy/tumblr-7d0d98f61b65924b7c33e18b275f1d15-b67449cd-250.gif">
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/a38v5y.jpg" width="400">
+  <img src="https://files.catbox.moe/lptgaj.gif" width="400">
 </p>
 
 <p align="center">
-  promptisㅤ ㅤ+ㅤ ㅤnarusasu  ㅤ  `ㅤ · ㅤ  .  ㅤ  ó ⩊ ò ㅤ  
+  licoㅤ ㅤ / ㅤ ㅤkerosen  ㅤ  `ㅤ · ㅤ  .  ㅤ  ㅤ  <img src="https://64.media.tumblr.com/c768cd54ab37035b510b5b89c9eb4868/69c74f578d46ad82-48/s75x75_c1/ab500fc321669b6721189ed6d0e0320b6c6503a1.gifv">
 
 <p align="center">
   <img src="https://i.postimg.cc/Hxy2Thh6/tumblr-250e5d34e5767816ae67fd360347105a-4ce38864-1280.gif">
