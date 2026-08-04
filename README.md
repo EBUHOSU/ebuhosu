@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/lptgaj.gif" width="400">
+  <img src="https://64.media.tumblr.com/dbca17cb8ce52db17afb937708e62fad/e49fcbb7287df685-5f/s400x600/39d217ad4300bba3ebebc42aafb04284918e064c.gifv" width="400">
 </p>
 
 <p align="center">
