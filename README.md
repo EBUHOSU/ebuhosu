@@ -3,11 +3,11 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/dbca17cb8ce52db17afb937708e62fad/e49fcbb7287df685-5f/s400x600/39d217ad4300bba3ebebc42aafb04284918e064c.gifv" width="400">
+  <img src="https://64.media.tumblr.com/7d43af0b5636702c0d9de131ee6138f1/9b41c4ed0ac3752d-c5/s1280x1920/30aede14d8a0a1828cecedd003832463ab60efcb.gifv" width="400">
 </p>
 
 <p align="center">
-  licoㅤ ㅤ / ㅤ ㅤkerosen  ㅤ  `ㅤ · ㅤ  .  ㅤ  ㅤ  <img src="https://64.media.tumblr.com/c768cd54ab37035b510b5b89c9eb4868/69c74f578d46ad82-48/s75x75_c1/ab500fc321669b6721189ed6d0e0320b6c6503a1.gifv">
+  licoㅤ ㅤ / ㅤ ㅤbeng  ㅤ  `ㅤ · ㅤ  .  ㅤ  ㅤ  <img src="https://64.media.tumblr.com/b77b811f3377e91c14c3e595e08ef4b0/52203d068b43eeab-dc/s250x400/de4dd7bde42731184f6e05ae6e308cecc3a75a3b.gifv" width="30">
 
 <p align="center">
   <img src="https://i.postimg.cc/Hxy2Thh6/tumblr-250e5d34e5767816ae67fd360347105a-4ce38864-1280.gif">
