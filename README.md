@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  licoㅤ ㅤ / ㅤ ㅤbeng  ㅤ  `ㅤ · ㅤ  .  ㅤ  ㅤ  <img src="https://64.media.tumblr.com/b77b811f3377e91c14c3e595e08ef4b0/52203d068b43eeab-dc/s250x400/de4dd7bde42731184f6e05ae6e308cecc3a75a3b.gifv" width="30">
+  takasugi shinsuke's #1 glazer  <img src="https://64.media.tumblr.com/b77b811f3377e91c14c3e595e08ef4b0/52203d068b43eeab-dc/s250x400/de4dd7bde42731184f6e05ae6e308cecc3a75a3b.gifv" width="30">
 
 <p align="center">
   <img src="https://i.postimg.cc/Hxy2Thh6/tumblr-250e5d34e5767816ae67fd360347105a-4ce38864-1280.gif">
