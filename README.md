@@ -7,12 +7,12 @@
 </p>
 
 <p align="center">
-  takasugi shinsuke's #1 glazer  <img src="https://64.media.tumblr.com/b77b811f3377e91c14c3e595e08ef4b0/52203d068b43eeab-dc/s250x400/de4dd7bde42731184f6e05ae6e308cecc3a75a3b.gifv" width="30">
+  takasugi shinsuke's #1 glazer ㅤ ㅤㅤ <img src="https://yokai.crd.co/assets/images/gallery17/6213bb97.gif?v=b4df531c">
 
 <p align="center">
   <img src="https://yokai.crd.co/assets/images/image09.gif?v=b4df531c">
 </p>
 
   
- > my current hyperfixations ![](https://pixels.crd.co/assets/images/gallery15/8af7e2b4.gif?v=29416114) 
+ > my current hyperfixations ㅤ![](https://yokai.crd.co/assets/images/gallery12/c6ac4c3e.gif?v=b4df531c) 
 
