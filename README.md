@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/7d43af0b5636702c0d9de131ee6138f1/9b41c4ed0ac3752d-c5/s1280x1920/30aede14d8a0a1828cecedd003832463ab60efcb.gifv" width="400">
+  <img src="https://64.media.tumblr.com/05274f4e5cf984d094579c3aca4b3b38/6432b698a0e9b712-db/s2048x3072/6cdf4cae5ba324304da4f5a940b0be8758b60ac9.jpg" width="400">
 </p>
 
 <p align="center">
