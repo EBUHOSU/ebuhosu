@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery02/8cf16a84.gif?v=05d33f91">
+  <img src="https://64.media.tumblr.com/62354f3da3278a8caadeb27ee1bcfbe2/f7e4ec82c82760e0-a5/s400x600/3c24193c85f96c96190db1e834056b1ebc5c3d7b.pnj">
 </p>
 
 <p align="center">
