@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  takasugi shinsuke's #1 glazer ㅤ <img src="https://files.catbox.moe/gdd3yo.jpg" width="30">
+  takasugi shinsuke's #10 glazer ㅤ <img src="https://files.catbox.moe/gdd3yo.jpg" width="30">
 
 <p align="center">
   <img src="https://yokai.crd.co/assets/images/image09.gif?v=b4df531c">
